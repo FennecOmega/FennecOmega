@@ -7,7 +7,7 @@ whats up im @FennecOmega (if you know my irl name dont say it)
 # more about me
 my favorite food is cheesecake 
 
-i am 20 not turning 21 anytime soon from the time i wrote this WooHoo
+i am 21 not turning 22 anytime soon from the time i wrote this WooHoo
 
 would love to learn more about ethics (red flag) and philosophy
 
